@@ -1,0 +1,1 @@
+La Révolution de 1789 n'est qu'une lutte de classe entre la Grande Bourgeoisie et la Grande Aristocratie. Le peuple a servi que de chair à canon et a gagné un peu de démocratie mais c'est juste un compromis qu'on tend à lui reprendre. 
