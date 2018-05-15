@@ -1,1 +1,1 @@
-J'adore l'invention de ce mot "inaptocratie" attribué à [Jean d'Ormesson](https://lesobservateurs.ch/2013/08/24/jean-dormesson/) même si on peut aimer le début de sa définition et détester la fin de celle-ci quand il cite Thatcher en référence.
+J'adore l'invention de ce mot **"inaptocratie"** attribué à [Jean d'Ormesson](https://lesobservateurs.ch/2013/08/24/jean-dormesson/) même si on peut aimer le début de sa définition et détester la fin de celle-ci quand il cite Thatcher en référence.
